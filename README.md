@@ -1,7 +1,10 @@
 # Border Game — Checkpoint Archive
 
-Every trial leaves a mark. These are the logs I’ve managed to keep safe.  
-Each checkpoint was written down quickly — sometimes clearly, sometimes not.  
-If you’re reading this, trace them carefully. The path continues beyond these notes.
+Fragments, receipts, and traces from the games I survived.  
+Each checkpoint is a marker on the path — follow carefully.  
+
+Some notes go deeper than these scraps.  
+When words alone couldn’t carry the weight, I left longer reflections elsewhere.  
+If you know my name, you already know where to look.  
 
 — Arisu
