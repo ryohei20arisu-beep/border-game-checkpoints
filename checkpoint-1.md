@@ -1,8 +1,8 @@
-# Checkpoint Log #1  
-Date: 2023-09-10  
-Location: Abandoned underpass
+# Checkpoint 1 — Shibuya Crossing
 
-Notes were scattered across the floor, but none of them pointed forward.  
-It seems the game wanted me to waste time here.
+Noise. Neon. The crowd felt alive yet hollow.  
+I kept my notes brief — the cards demanded all attention.  
 
-No exit. Just noise.
++*********************////////////  
+
+Not much survived from that night, except a memory of lights fading under the rain.  
