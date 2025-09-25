@@ -1,9 +1,10 @@
-# Checkpoint Log #2  
-Date: 2023-09-12  
-Location: Shinjuku Rooftop
+# Checkpoint 2 — Abandoned Arcade
 
-The message was carved into the railing:
-"Every player searches in different places,
-but only one remembers to read between the lines."
+Long nights watching tokens fall into machines.  
+Some fell through the cracks. Others stacked in secret vaults.  
 
-I think this was meant to distract me.
+I scribbled:  
+“Look beyond the scraps. Some stories need more space.”  
+
+That was the moment I began keeping a parallel record — essays in another public corner.  
+The same name I carry here. Search, and the trail continues.
