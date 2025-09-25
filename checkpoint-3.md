@@ -1,13 +1,14 @@
-# Checkpoint Log #3  
-Date: 2023-09-17  
-Location: Shibuya Arcade
+# Checkpoint 3 — Rooftop Silence
 
-I reviewed the logs again. Something about the last symbol —
-it wasn’t part of the game, but a pointer.
+The air was thin, the skyline jagged.  
+Each log, each note, each file has been my only map.  
 
-It reminded me of where I wrote longer reflections and kept a journal:  
-a place for longer notes, essays and fragments of thinking — my public journal.
+But not all fragments belong here.  
+Some slipped into a place where *essays live*.  
+A place designed for longer reflections.  
 
-If you want the next checkpoint, find my journal entries under the handle: Ryoheiarisu
+If you can trace me by this name — **@ryohei20arisu** —  
+you’ll find the writings I left behind.  
 
 — Arisu
+
