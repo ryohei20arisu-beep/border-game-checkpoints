@@ -1,4 +1,4 @@
-# Border Game — Checkpoint Archive
+# Border Game — Checkpoint #4
 
 Fragments, receipts, and traces from the games I survived.  
 Each checkpoint is a marker on the path — follow carefully.  
