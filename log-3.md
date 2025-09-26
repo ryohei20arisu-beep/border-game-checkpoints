@@ -5,7 +5,7 @@ Each log, each note, each file has been my only map.
 
 But not all fragments belong here.  
 Some slipped into a place where *essays live*.  
-A place designed for longer reflections.  
+A place designed for longer reflections and has a difficulty level name.  
 
 If you can trace me by this name — **@ryohei20arisu** —  
 you’ll find the writings I left behind.  
