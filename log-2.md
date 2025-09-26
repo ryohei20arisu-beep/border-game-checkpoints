@@ -1,4 +1,4 @@
-# Checkpoint 2 — Abandoned Arcade
+# Checkpoint — Abandoned Arcade
 
 Long nights watching tokens fall into machines.  
 Some fell through the cracks. Others stacked in secret vaults.  
