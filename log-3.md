@@ -1,4 +1,4 @@
-# Checkpoint 3 — Rooftop Silence
+# Checkpoint — Rooftop Silence
 
 The air was thin, the skyline jagged.  
 Each log, each note, each file has been my only map.  
